@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Night-Hawkeye
+- 👋 I’m @Night-Hawkeye
 - 👀 I’m interested in learning new things.
